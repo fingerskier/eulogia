@@ -2,7 +2,7 @@
 ## Raelene Samson
 
 
-## Obituary
+## Obituary (2min)
 
 * [Text](obituary.md)
 * Matt
