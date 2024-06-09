@@ -31,7 +31,8 @@
 
 ## Instructions (2min)
 
-* Food & fellowship at Los Colonias
+* Food & fellowship at Los Colonias Park
+  * the Mariposa pavilion
 
 
 ## Closing Prayer (1min)
