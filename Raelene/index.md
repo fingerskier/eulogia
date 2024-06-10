@@ -13,9 +13,9 @@
 * ???
 
 
-## Song: (4min)
+## Song: (4:08min)
 
-* How Great Thou Art
+* Sissy Song
 
 
 ## Eulogy (3min)
@@ -24,7 +24,7 @@
 * Matt
 
 
-## Song: (4min)
+## Song: (3:48min)
 
 * Save A Place For Me
 
