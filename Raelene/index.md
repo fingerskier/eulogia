@@ -38,7 +38,7 @@
 ## Closing Prayer (1min)
 
 
-## Song: (4min)
+## Song: (4:26min)
 
-* ???
+* Amazing Grace
 * played while exiting
