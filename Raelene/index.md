@@ -15,7 +15,7 @@
 
 ## Song: (4min)
 
-* ???
+* How Great Thou Art
 
 
 ## Eulogy (3min)
@@ -26,7 +26,7 @@
 
 ## Song: (4min)
 
-* ???
+* Save A Place For Me
 
 
 ## Instructions (2min)
