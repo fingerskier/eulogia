@@ -1,13 +1,19 @@
-The human morality rate is very high. 
-Statistically speaking, one out of one of us will die;
-and one of us will be the next one. 
-Yet it hurts deeply to lose a loved one. 
-Because they occupy such a special place.
+Statistically speaking, 1 out of 1 of us will die;
+and 1 of us will be the next one.
+The question, in light of this, is- how then should we live?
 
-A parent is more special because they taught us grace and mercy by giving us grace and mercy. 
-The best the world has to offer is the given rule: 
-do unto others as you'd have then do unto you.
-But this is not the Christian way, that way is:
-so unto others who can do nothing for you. 
-In fact, Christ not only did unto the dregs of society but also to those who hated him. 
+Many live by the golden rule: 
+do unto others as you would have them do unto you.
+But this is not the Christian way.
+The way of Jesus is:
+do unto others who can do nothing for you.
+In fact, Jesus did unto those who hated Him.
+
+This is what Dad epitomized: he gave grace and mercy, undeserved favor and blessing.
+This is why we'll miss him terribly.
+It's not because we don't believe he's in a better place;
+not because we don't think he's finally in eternal peace and comfort;
+but because he was such a blessing to us that he leaves a tremendous gap in our lives.
+And what a tremendous gift from God he is that we should feel his loss so profoundly.
+Because he didn't just work and strive but led a family and left a legacy.
 
