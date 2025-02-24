@@ -1,3 +1,11 @@
+I am the potential Bill in a China shop.
+A bit weight and clumsy in most ways. 
+Dad was an actual bull in a China ship. 
+The myth busters did an episode where they ran bulls through a own with racks of dishes. 
+it turns out those massive, strong animals are quite noble. 
+
+
+
 Statistically speaking, 1 out of 1 of us will die;
 and 1 of us will be the next one.
 The question, in light of this, is- how then should we live?
