@@ -5,9 +5,11 @@ Video
 
 Read obituary
 
-Choir hymn
+My Anchor Holds 
 
 Melinda
+
+Come Thou Fount
 
 String quartet 
 
