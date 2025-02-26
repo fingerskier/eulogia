@@ -20,4 +20,5 @@ He gave grace and mercy, undeserved favor and blessing.
 What a tremendous legacy from God that he didn't just work and strive but led a family and left things better than he found them.
 It's with this advantage that we move forward. 
 We accept that we have an inspired place in this life. 
-Good placed us in this time and place for a reason.
+God placed us in this time and place for a reason.
+Why shouldn't it be said of each of us, a hundred years from now, that our loss was felt as deeply because we too loved as much.
