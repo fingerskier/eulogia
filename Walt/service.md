@@ -7,13 +7,13 @@ Read obituary
 
 My Anchor Holds 
 
+?Melinda?
+
 Come Thou Fount
 
-Meredith ?John 14?
+?Meredith ?John 14?
 
 String trio
-
-Congregational hymn?
 
 Song
 
@@ -30,3 +30,4 @@ computer in sanctuary
 reception computer
 reception monitor
 guitar
+- strap
