@@ -11,7 +11,7 @@ Come Thou Fount
 
 Meredith ?John 14?
 
-String trip
+String trio
 
 Congregational hymn?
 
@@ -23,3 +23,10 @@ Committal prayer
 
 Egress
 - video
+
+====
+
+computer in sanctuary 
+reception computer
+reception monitor
+guitar
