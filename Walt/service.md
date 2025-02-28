@@ -7,11 +7,11 @@ Read obituary
 
 My Anchor Holds 
 
-?Melinda?
+Isaiah 12 ~ ?Melinda?
 
 Come Thou Fount
 
-?Meredith ?John 14?
+John 14 ~ ?Meredith?
 
 String trio
 
