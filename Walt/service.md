@@ -23,11 +23,3 @@ Committal prayer
 
 Egress
 - video
-
-====
-
-computer in sanctuary 
-reception computer
-reception monitor
-guitar
-- strap
