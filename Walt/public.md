@@ -15,7 +15,7 @@ The Christian way, which I think Dad epitomized was:
 do unto others who can do nothing for you.
 In fact, Jesus did unto those who hated Him.
 Which, if we're honest, was all of us at some time, in some way- no matter how brief or small.
-He gave grace and mercy: we got favor we didn't deserve, and didn't suffer a lot of things that we did deserve.
+He gave grace and mercy: we got favor that we didn't deserve, and didn't suffer a lot of things that we did deserve.
 
 Dad was smart, skilled, and industrious. 
 He loved his family deeply and cared greatly about family legacy;
