@@ -1,4 +1,6 @@
 
+...reminisce...
+
 Statistically speaking, 1 out of 1 of us will die.
 In case you're struggling with the maths that's a 100% mortality rate;
 and 1 of us will be the next one.
