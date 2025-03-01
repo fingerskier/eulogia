@@ -29,4 +29,4 @@ We accept that his place in our lives was inspired by God.
 And we accept the further inspiration from God to pass forward the love and wisdom that he gave us.
 God put us in this place at this time for a reason-
 to know Him and make Him known.
-Why shouldn't it be said of each of us, a hundred years from now, that our loss was felt as deeply because we too loved as much as the man loved us.
+Why shouldn't it be said of each of us, a hundred years from now, that our loss was felt as deeply because we too loved as much as this man loved us.
