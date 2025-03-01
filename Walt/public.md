@@ -1,8 +1,9 @@
-
 ...reminisce...
 
-Statistically speaking, 1 out of 1 of us will die.
-In case you're struggling with the maths that's a 100% mortality rate;
+We miss him and, sometimes, can't believe he's gone.
+
+But statistically speaking, 1 out of 1 of us will die.
+--In case you're struggling with the maths-- that's a 100% mortality rate;
 and 1 of us will be the next one.
 So, it isn't a surprise that our loved ones pass, just when and how;
 And it doesn't do to dwell on loss or regret.
